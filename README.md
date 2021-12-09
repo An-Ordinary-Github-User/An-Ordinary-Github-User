@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @An-Ordinary-Github-User
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me idk
+- :)
